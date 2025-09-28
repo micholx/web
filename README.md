@@ -1,0 +1,1 @@
+odpalasz i masz
